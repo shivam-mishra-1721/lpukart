@@ -1,1 +1,1 @@
-lpu kart is in zeep file open the file to see more
+lpu kart is in zip file open the file to see more
